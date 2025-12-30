@@ -1,9 +1,9 @@
 
-![1000000466](https://github.com/user-attachments/assets/e8608d1b-4d44-4388-9715-33eecb03bd57)
+<p align=center ![1000000466](https://github.com/user-attachments/assets/e8608d1b-4d44-4388-9715-33eecb03bd57)
 
 hello! you may call me roy or yuriku
 
-![](https://pin.it/7Dt3tvqmW)
+
 stuff about me ofc. 
 
 - he/they
