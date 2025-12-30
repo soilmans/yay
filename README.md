@@ -19,4 +19,15 @@ stuff about me ofc.
   - people who are mainly annoying  
   - ai art supporters. 
 
-  
+  ![1000000458](https://github.com/user-attachments/assets/41397950-3eda-4f23-ac2c-4250faaff841)
+ more stuff ahahhuedfuiiaazii
+
+- I got spotify and some playlist if it interest you tell me!
+- i got pinterest which i post my drawings and creations here!
+- i got back pain so uhhhhhhhh i got a shrimp keyboard for that
+- ![1000000485](https://github.com/user-attachments/assets/0c1202f3-eadf-49b4-b304-249429b3d6c3)
+more stuff i like
+- i heart stranger things for no reason at all
+- i luv vocaloids 
+i i like alchemist fullmetal^_^
+![1000000479](https://github.com/user-attachments/assets/d8a55045-6441-41a1-af83-2a44d02ebff7)
